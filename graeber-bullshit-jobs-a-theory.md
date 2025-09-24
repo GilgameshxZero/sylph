@@ -1,6 +1,6 @@
 # Bullshit Jobs: A Theory
 
-David Graeber | Yang Yan
+by David Graeber, annotated by Yang Yan
 February 21, 2023
 
 > The most obvious example of this are national armed forces. Countries need armies only because other countries have armies. If no one had an army, armies would not be needed. But the same can be said of most lobbyists, PR specialists, telemarketers, and corporate lawyers.

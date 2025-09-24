@@ -1,6 +1,6 @@
 # Dead Girls and Other Stories
 
-Emily Geminder | Yang Yan
+by Emily Geminder, annotated by Yang Yan
 February 5, 2023
 
 My general thoughts come first, follow by thoughts divided by chapters in the book.
