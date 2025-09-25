@@ -7,10 +7,16 @@ It is no secret, of course, that among the authors I’ve encountered, and espec
 
 While rhythm and flow are no easy feat, I find them the more technical of the skills used in writing. It is a mastery of the language and the evocation of words which enables this poetry. All this to say that I deeply respect Vuong’s nature of observation. When he writes, “as you approach, you’ll be flanked by wide stretches of thumb-sized buds shooting lucent through April mud,” I read a long breath following the previous sentence’s short. I take in all, so much, of this context, to only notice so little: that buds litter the spring grounds. And I observe this, of Vuong’s observation: it is not that he is incapable of deriving intuition and insight. It is a deliberate demonstration of restraint, saying *I can stop anywhere, anytime I want. I choose to stop here.*
 
-As I read *The Emperor of Gladness*, I am reminded that beyond the substance of a passage, the construction of a passage has the power to reshape my own thought process. In this way, we become who we read, and we become what we write. In the way that I pursue my truth, then, surely, I must be capable to emulate the ones I respect.
+As I read *The Emperor of Gladness*, I am reminded that beyond the substance of a passage, the construction of a passage has the power to reshape my own thought process. In this way, we become who we read, and we become what we write. In the way that I pursue my truth, then, surely, I must be capable of emulating the ones I respect.
 
 So I leave this preface with a quote from *the* preface:
 
 > Your worm is your only emperor…
 > We fat all creatures else to fat us
 > and we fat ourselves for maggots.
+
+---
+
+The problem is that it’s so fucking hopeless. The whole first two sections is so devoid of any hope, any respite, any future. In every corner, all I see is the inevitable—it is as Chiang would have written in those time-twisting short stories of his: that we walk only toward our inevitable doom, that we know where we must go, and need only figure out a way to get there.
+
+If we think like what we read, then I’m depressed.
