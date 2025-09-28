@@ -1,7 +1,7 @@
 # The Midnight Library
 
+by Matt Haig, annotated by Yang Yan
 February 5, 2022
-<https://www.goodreads.com/book/show/52578297-the-midnight-library>
 
 > The trouble was that eventually Nora began to lose any sense of who she was. Like a whispered word passed around from ear to ear, even her name began to sound like just a noise, signifying nothing.
 >
