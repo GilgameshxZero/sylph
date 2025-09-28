@@ -1,4 +1,4 @@
-# The Farthest Shore
+# The Other Wind
 
 by Ursula K. Le Guin, annotated by Yang Yan
-June 16, 2023
+September 27, 2025
