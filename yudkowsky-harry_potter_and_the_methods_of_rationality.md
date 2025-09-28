@@ -1,7 +1,7 @@
 # Harry Potter and the Methods of Rationality
 
+by Eliezer Yudkowsky, annotated by Yang Yan
 February 11, 2022
-<https://www.goodreads.com/book/show/10016013-harry-potter-and-the-methods-of-rationality>
 
 > “You’d think there’d be some kind of more dramatic mental event associated with updating on an observation of infinitesimal probability -” Harry stopped himself.
 
