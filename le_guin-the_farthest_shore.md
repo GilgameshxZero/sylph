@@ -1,4 +1,3 @@
 # The Farthest Shore
 
-by Ursula K. Le Guin, annotated by Yang Yan
 June 16, 2023

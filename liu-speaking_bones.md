@@ -1,6 +1,5 @@
 # Speaking Bones
 
-by Ken Liu, annotated by Yang Yan
 September 9, 2025
 
 > “I don’t think you’re afraid of dying,” said Théra. “I think you’re afraid that by asking Kitos to stand with you, you’ll be asking them to make a meaningless sacrifice.”

@@ -1,6 +1,5 @@
 # The Emperor of Gladness
 
-by Ocean Vuong, annotated by Yang Yan
 September 24, 2025
 
 It is no secret, of course, that among the authors I’ve encountered, and especially those from whom I derive particular inspiration for my own voice, Vuong stands as one of my favorite, among the likes of Diffenbaugh, Zimmer Bradley, and Le Guin. I have yet to read his poetry; his premiere novel said enough to convince me. Necessarily, it is difficult to enunciate specifics about voice, but I attempt to do so here. What strikes me is some combination of the thoughtfulness of each sentence, with a natural rhythm, the variation in structure, and length, so that each passage flows like lines of poetry through a forest of particularly detailed observations. Coming from a scientist, I find this latter technique difficult to emulate; for me, the world is pure and structured, controlled and ordered in ways that fit together with innate reason to be. But for Vuong, I suspect, it is enough to have this chaos. It is enough to just notice, to just listen, and not derive any further insights beyond that. It is enough, I must tell myself, to simply observe, and let the world pass me by, so that I may learn its true nature, without the desire, any desire, to change it. This, I believe, is what plagues me, and what plagues many of those in science.
